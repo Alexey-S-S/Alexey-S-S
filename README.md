@@ -3,4 +3,4 @@
 В этом профиле я собираю выполненные проекты.<br>
 Связаться со мной можно через: <br>
     - Telegram [@A_Savel](https://t.me/A_Savel)<br>
-    - linkedin [тык](linkedin.com/in/alexey-s-s)
+    - [linkedin](linkedin.com/in/alexey-s-s)
